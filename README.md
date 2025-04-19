@@ -2,8 +2,8 @@
 Hi
 I am Accounts and Finance with Taxation Professional
 Enrolled as a DSBA from IIT Gauwhati
-Presently Working as As a Manage Finance with data Analytics
-I have approx 15years of work experience in out of india like Africa and Middle East countries
+Presently Working as As a Manage Finance and data Analytics
+I have approx 15years of work experience in india and outside india - like countries in Africa and Middle East....
 
  👋 Hi, I’m @arsamantaray
 - 👀 I’m interested in make programs ...
